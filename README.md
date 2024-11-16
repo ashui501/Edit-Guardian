@@ -1,4 +1,4 @@
 THIS CODES MADE BY : TEAM APEX 
 
 DEVELOPERS :
-AKIRA (Github.com/ashui501)
+- [𝗜𝗦𝗛𝗜𝗞𝗞𝗜 𝗔𝗞𝗜𝗥𝗔](https://t.me/AKIRA_ISHIKKI) A <a 
